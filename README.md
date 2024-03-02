@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rana Pratap Praasad  #(WEB DEVELOPER)
-- 👀 I’m interested in C C++ HTML5 CSS3 JAVASCRIPT DSA GAMEDEVELOPING WEBdesign GRAPHICdesign mysqlDATABASE MONGOdb   
+- 👀 I’m interested in building New Domain and Technologies -->--> C C++ HTML5 CSS3 JAVASCRIPT DSA GAMEDEVELOPING WEBdesign GRAPHICdesign mysqlDATABASE MONGOdb   
 - 🌱 I’m currently learning REACTJS NODEJS jQUERY 
 - 💞️ I’m looking to collaborate on MNC ltds.
 - 📫 How to reach me ------>>>ranapratapprasad3@gmail.com  
