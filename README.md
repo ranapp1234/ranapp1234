@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning REACTJS NODEJS jQUERY 
 - 💞️ I’m looking to collaborate on MNC ltds.
 - 📫 How to reach me ------>>>ranapratapprasad3@gmail.com  
-- 😄 bigcircle with DATA ASCII WIDGET GADGET hammer barbel pullbar CABLE
+- 😄 bigcircle with DATA ASCII WIDGET GADGET, JYM - Hammer barbel pullbar CABLE
 - ⚡ Hot Black lover WEBSERIES lover Workout professional
 
 <!---
